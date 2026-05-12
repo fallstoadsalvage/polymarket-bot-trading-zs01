@@ -1,4 +1,4 @@
-# 
+# advanced Polymarket Strategy | custom-strategies + high-frequency-trading is the best Polymarket strategy, featuring custom-strategies and high-frequency-trading. Smart, fast, and
 
 
 
